@@ -1,1 +1,1 @@
-# job-hunting
+# museum-of-candy
